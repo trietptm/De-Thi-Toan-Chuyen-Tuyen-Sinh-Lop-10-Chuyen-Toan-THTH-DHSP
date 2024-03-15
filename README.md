@@ -10,6 +10,11 @@
 ## 2014-2015:
 ![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/1ff9b656-bb10-42c9-ab55-7ec06d2b55e1)
 
+## 2012-2013:
+![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/3cbcb6d1-c882-46cd-a9bd-d26872a0e6e0)
+
+![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/a55c7934-8da3-4c6c-a5c9-6a6fc2b64cf9)
+
 ## 2008-2009:
 ![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/34f38aea-28d7-429a-81cc-71923bea8bb6)
 
