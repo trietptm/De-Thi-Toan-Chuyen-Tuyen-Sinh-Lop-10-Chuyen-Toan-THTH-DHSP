@@ -1,6 +1,11 @@
 # De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP
 Đề Thi Tuyển Sinh Toán chuyên Vào Lớp 10 Chuyên Toán Trường Trường Trung học Thực hành Đại học Sư phạm, TP.HCM
 
+## 2020-2021:
+![image](https://github.com/user-attachments/assets/8b7e7ca5-273e-48d4-a06a-0a91d3c06269)
+
+![image](https://github.com/user-attachments/assets/4b41a2d2-87cc-443f-93d2-d7dceebc8dbc)
+
 ## 2018-2019:
 ![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/0caee59e-0bfc-44e0-ac5a-3c0c38b14825)
 
