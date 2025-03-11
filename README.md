@@ -29,6 +29,8 @@
 ## 2006-2007:
 ![image](https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THTH-DHSP/assets/526959/33d0e0ad-3b86-4b93-b223-ac04bf239af6)
 
+![image](https://github.com/user-attachments/assets/76debb7a-f827-4d26-8268-8adac6c38c7d)
+
 
 
 
